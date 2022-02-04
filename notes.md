@@ -32,4 +32,23 @@ Whereas they of the West change their opponents’ nature.
 Poetry had to change form the form of the mughal aristocracy to a more modern form
 that took away "over-reliance on ornate and exaggerated forms of expression
 (familiar to the Orientalist depiction of Mughal rulers as decadent and effete)"
+# Data on modern pakistanis listening to music
+
+large amount of pakistanis listen to music as opposed to playing it
+which is in direct contrast to western civilization
+
+However, although pakistnis like traditional type music like ghazals 
+and whatnot, wester pop music is very popular as well
+
+*however*, other forms of music are not popular such as reggae/soul.
+Speaks to the marketing of this music to this demographic perhaps?
+
+Music does conform to gender stereotype, aka Girls would rather chat with parents, cook, than listen to music but not do "boyish" things like play 
+computer games. 
+
+Culturally, creating music/playing music is more ingrained and Pakistanis 
+would only do so for purely internal reasons as opposed to factors 
+like cultural pressure, of which basically non exists.
+
+pakistani music is being "westernized" 
 
