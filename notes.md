@@ -52,3 +52,35 @@ like cultural pressure, of which basically non exists.
 
 pakistani music is being "westernized" 
 
+# BBC article
+
+Something something clash of cultures
+
+# williams soundtrack
+
+Each season is released as a series of episodes featuring three to four music videos, accompanied by Behind the Scenes videos
+
+Coca-Cola Pakistan markets itself as producing drinks that unite people across classes and cultures, and appeals to the romantic idea that music is a universal
+language
+
+
+# Berkeley 
+
+Coke studio started out in Brazil I guess.
+
+Coke spent 6.8b on marketing
+
+The idea is that special bonds are created by appealing to developing cultures.
+
+# medium article
+
+*important* idea of Fusion, mixing western and eastern music together
+
+catered to ethos of being original
+
+"A fusion of western music (Hip hop, Rock and Pop) and eastern folk songs (Sufi, Qawwali, Ghazal, Punjabi) to bring the Pakistani pride back. A fusion of unknown, young artists (Meesha Shafi, Ali Zafar, Komal Rizvi) with the famous, classical, folk and Sufi artists (Rahat Fateh Ali Khan, Arif Lohar, Abida Parveen)"
+
+Sufism as an antidote to extremism
+
+Coke Studio aided in catapulting Coca-Cola Company from being a small player to taking up 42% of the market share (in retail volume) in Pakistan in 2018 with Pepsi being a close second at 38%, according to Euromonitor. But moreover, Coke had now gained positive associations to its brand, it had captured a considerable share of the consumer’s mind and had struck the right cords to elicit an emotional response from its consumers
+
