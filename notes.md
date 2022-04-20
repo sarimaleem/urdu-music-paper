@@ -84,3 +84,8 @@ Sufism as an antidote to extremism
 
 Coke Studio aided in catapulting Coca-Cola Company from being a small player to taking up 42% of the market share (in retail volume) in Pakistan in 2018 with Pepsi being a close second at 38%, according to Euromonitor. But moreover, Coke had now gained positive associations to its brand, it had captured a considerable share of the consumer’s mind and had struck the right cords to elicit an emotional response from its consumers
 
+quote:
+The Musharraf regime’s solution to promoting a moderate image of the nation
+while staying true to its Islamic heritage was Sufism, an “Islam of peace.”
+Projecting a peaceful Pakistan had to be done visibly, and so Sufi practices
+were turned into forms of cultural tourism, commodifying it.
