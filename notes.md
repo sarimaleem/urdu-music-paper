@@ -89,3 +89,36 @@ The Musharraf regime’s solution to promoting a moderate image of the nation
 while staying true to its Islamic heritage was Sufism, an “Islam of peace.”
 Projecting a peaceful Pakistan had to be done visibly, and so Sufi practices
 were turned into forms of cultural tourism, commodifying it.
+
+
+TODO List for rough draft:
+
+* Change the thesis to fit the paper a bit better. [DONE]
+* Make sure there are 3 academic sources [DONE]
+* Add the non academic sources [DONE]
+* add citations throughout the paper [DONE]
+* Add either the interview or the ethnogrpahic analysis to each paragraph [DONE]
+  * paragraph 1 [DONE]
+  * paragraph 2 [DONE]
+  * paragraph 3 [DONE]
+* Fix the conclusion [DONE]
+* Final read through
+
+TODO list for final draft: 
+
+Great work on this Sarim! I only have a few suggestions because you have a
+pretty well-written paper alredy! My main thoughts surround the depth you go in.
+Like I mentioned at a few points in the comments, there are alot of aspects to
+this that could use a little more detail and maybe additional perspectives to
+support your argument. The changes in reintroduction or the language barrier as
+examples. Those are two I would definitely recommend seeing if there are any
+other aspects that you didn't touch on. And then in general, picture your
+research alongside your thesis points. Are there any connections between them
+that you missed? Does this article explain a different side of this point that
+you haven't touched on yet? Ask yourself those questions to start digging deeper
+into each of your points! Nice work overall!
+
+[ ] Additional perspective for Sufi culture
+[ ] Additional perspecive on language
+[ ] IDK what else ??
+
